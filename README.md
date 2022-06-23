@@ -1,7 +1,7 @@
 - 👋 This is @Whereismarx
 - ✨ Ad astra per aspera
 - 🌱 HKU BDI 2018-2022
-- 💼 Tencent M&A Analyst
+- 💼 M&A Analyst
 - 📫 Find me @where_is_marx on ig
 
 <!---
